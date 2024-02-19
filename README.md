@@ -5,3 +5,5 @@ Excited about this learning journey
 HOM!
 This is difficult but I can do it. 
 Anything new is different and unknown but you will learn it. 
+Keep patience. 
+Revision and study time will help. 
